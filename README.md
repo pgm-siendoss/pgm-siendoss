@@ -3,6 +3,7 @@
 - But as I learn more, you'll see more of my work!🌱
 - I'm very excited to show more and learn more.
 - If you want to contact me you can do so here or on my LinkedIn profile.
+- https://www.linkedin.com/in/sienna-dossche-753639232/
 - Thanks for reading!
 
 <!---
